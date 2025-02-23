@@ -1,1 +1,1 @@
-# Code battle 💻⚔️
+# Code battle ⚔️
